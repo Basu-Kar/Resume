@@ -22,7 +22,7 @@ Experienced software professional with over 20 years in software development, in
 
 ## Employment History
 
-- **Target Corporation India Pvt Ltd (May 2007 - Till Date)**
+- **Target Corporation India Pvt Ltd (May 2007 - Present)**
 - **Realsoft India Pvt Ltd (Jan 2005 - Apr 2007)**
 - **Tavant Technology Pvt Ltd (Aug 2004 - Jan 2005)**
 
